@@ -5,3 +5,4 @@ Ils sont toujours en retart ou bien ..?
 Xera1337
 Heureusement le télétravail existe.
 à la maison c'est pépouze
+les saucisses cest meilleur au micro onde
